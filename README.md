@@ -1,1 +1,0 @@
-# para_mi_chikis
